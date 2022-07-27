@@ -1,0 +1,1 @@
+Git'e hoş geldin
